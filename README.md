@@ -228,7 +228,7 @@ https://youtu.be/Gn5JBRQx3vI?si=pAwDPUOmGPXuERvQ
 
 # 📄 Project Report
 
-**Project Report:**
+**Project Report:**https://github.com/pujitapodder44-ui/Echoes-of-Arcana/blob/main/Echoes_of_Arcana_Project_Final_Report_Updated%20(1).pdf
 
 # 💡 Innovative Elements
 
